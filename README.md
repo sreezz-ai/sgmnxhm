@@ -2,7 +2,7 @@
 <div align="left"><a href="https://dashboard.heroku.com/new?template=https://github.com/CTAchiya/sgmnxhm"><img src="https://i.ibb.co/WPRfjrZ/c6eb7d6b6606.png" width="150" ></a></div>
 
 
-[!heroku](https://heroku.com/deploy?template=https://github.com/sreezz-ai/sgmnxhm/)
+[!heroku](https://heroku.com/deploy?template=https://github.com/sreezz-ai/sgmnxhm/)\n\n
 [!repl](https://replit.com/@sreezzai/Alpha-Qr?v=1)
 FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈
 FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈FUCK 😈 FUCK 😈
